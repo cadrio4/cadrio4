@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **c.adrio@outlook.com**
 
-- 📄 Know about my experiences [https://app.enhancv.com/share/0586be57/?utm_medium=growth&utm_campaign=share-resume&utm_source=dynamic](https://app.enhancv.com/share/0586be57/?utm_medium=growth&utm_campaign=share-resume&utm_source=dynamic)
+- 📄 Know about my experiences [https://app.enhancv.com/share/0586be57/?utm_medium=growth&utm_campaign=share-resume&utm_source=dynamic]
 
 - ⚡ Fun fact **I consider myself as a creative person**
 
